@@ -1,0 +1,2 @@
+# kody1
+Repozytorium
